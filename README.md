@@ -1,4 +1,4 @@
-![head.png](https://cdn.discordapp.com/attachments/803251584913506383/803577645400064020/13-05-33-original.gif)
+![head.png](https://cdn.discordapp.com/attachments/805847314252955682/810852011137564703/tumblr_04cd60ec719cbe931b5c9c66f361dd3c_151eb1a0_500.gif)
 
 ─────────────────────────────────────────────────────────────────────────────────────
 
